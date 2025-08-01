@@ -7,7 +7,7 @@ Vida de @henriquesebastiao
 - ~2011 Pulei o 2º ano
 - 13/12/2013 Primeira Eucaristia
 - 2014-08/2016 Ensino fundamental (6º ao 7º ano) - EMEIEF Mafalda Rodrigues
-- 08/2016 Me mudo para o estado de Mato Grosso - Brasil
+- 08/2016 Me mudo para Colniza - MT (Brasil)
 - 08/2016-2017 Ensino fundamental (7º ao 8º ano) - EM Aparecido Neri Fonseca
 - 2017-2018 Ensino fundamental (9º ano) - EE André Antônio Maggi
 - 2018-2020 Ensino médio - EE André Antônio Maggi

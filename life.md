@@ -3,12 +3,12 @@ Vida de @henriquesebastiao
 
 - 05/04/2003 Nascimento em Ariquemes - RO (Brasil)
 - 04/06/2004 Batizado pelo Pe. Vitório Mário Mazuti
-- 2010-2013 Ensino fundamental (1º ao 5º ano) - Floresta Fernandes
+- 2010-2013 Ensino fundamental (1º ao 5º ano) - Florestan Fernandes
 - ~2011 Pulei o 2º ano
 - 13/12/2013 Primeira Eucaristia
 - 2014-08/2016 Ensino fundamental (6º ao 7º ano) - EMEIEF Mafalda Rodrigues
 - 08/2016 Me mudo para o estado de Mato Grosso - Brasil
-- 08/2016-2017 Ensino fundamental (7º ao 8º ano) - Aparecido Neri Fonseca
+- 08/2016-2017 Ensino fundamental (7º ao 8º ano) - EM Aparecido Neri Fonseca
 - 2017-2018 Ensino fundamental (9º ano) - EE André Antônio Maggi
 - 2018-2020 Ensino médio - EE André Antônio Maggi
 - 12/10/2018 Primeira vigem à Aripuanã - MT (Brasil)

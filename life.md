@@ -1,0 +1,32 @@
+Vida de @henriquesebastiao
+===============
+
+- 05/04/2003 Nascimento em Ariquemes - RO (Brasil)
+- 04/06/2004 Batizado pelo Pe. Vitório Mário Mazuti
+- 2010-2013 Ensino fundamental (1º ao 5º ano) - Floresta Fernandes
+- ~2011 Pulei o 2º ano
+- 13/12/2013 Primeira Eucaristia
+- 2014-08/2016 Ensino fundamental (6º ao 7º ano) - EMEIEF Mafalda Rodrigues
+- 08/2016 Me mudo para o estado de Mato Grosso - Brasil
+- 08/2016-2017 Ensino fundamental (7º ao 8º ano) - Aparecido Neri Fonseca
+- 2017-2018 Ensino fundamental (9º ano) - EE André Antônio Maggi
+- 2018-2020 Ensino médio - EE André Antônio Maggi
+- 12/10/2018 Primeira vigem à Aripuanã - MT (Brasil)
+- 15/07/2019-28/07/2019 Viagem à Rondônia (Brasil)
+- 27/09/2019-29/09/2019 Primeira viagem à Alta Floresta - MT (Brasil)
+- 27/09/2019-29/09/2019 Participo da 1ª Olimpíada Mato-Grossense de Lançamento de Foguetes
+- 29/09/2019 5º lugar na 1ª OMLF
+- ~2020 Medalha de bronze na 23ª Olimpíada Brasileira de Astronomia e Astronáutica
+- 2021 Primeiro emprego (informal)
+- 04/2021-02/2022 Graduação Ciência da Computação - UNEMAT
+- 03/01/2022-~ Técnico de Redes - Castilho@Net
+- 19/02/2022-~ Graduação Ciência da Computação - UNIP
+- 22/12/2022-03/01/2023 Viagem à Rondônia (Brasil)
+- 10/01/2024-15/01/2024 Primeira viagem à São Paulo e Goiás (Brasil)
+- 12/01/2024 Primeira visita ao Santuário Nacional de Nossa Sra. Aparecida
+- 13/01/2024 Primeira visita ao Santuário Frei Galvão
+- 13/01/2024 Primeira visita à Canção Nova
+- 15/01/2024 Primeira visita ao Santuário do Divino Pai Eterno
+- 23/03/2024-24/03/2024 - Segunda viagem à Aripuanã - MT (Brasil)
+- 27/10/2024 Terceira viagem à Aripuanã - MT (Brasil)
+- 23/06/2025-01/07/2025 Viagem à Rondônia (Brasil)

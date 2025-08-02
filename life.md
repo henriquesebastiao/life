@@ -1,32 +1,32 @@
 Vida de @henriquesebastiao
 ===============
 
-- 05/04/2003 Nascimento em Ariquemes - RO (Brasil)
+- 05/04/2003 Nascimento em <a href="https://maps.app.goo.gl/qAkHrKuszMKMr4SQ7"  target="_blank"="_blank">Ariquemes - RO</a> (Brasil)
 - 04/06/2004 Batizado pelo Pe. Vitório Mário Mazuti
-- 2010-2013 Ensino fundamental (1º ao 5º ano) - Florestan Fernandes
+- 2010-2013 Ensino fundamental (1º ao 5º ano) - <a href="https://maps.app.goo.gl/2A9yxqg3qvVP3MW28" target="_blank">Florestan Fernandes</a>
 - ~2011 Pulei o 2º ano
 - 13/12/2013 Primeira Eucaristia
-- 2014-08/2016 Ensino fundamental (6º ao 7º ano) - EMEIEF Mafalda Rodrigues
-- 08/2016 Me mudo para Colniza - MT (Brasil)
-- 08/2016-2017 Ensino fundamental (7º ao 8º ano) - EM Aparecido Neri Fonseca
-- 2017-2018 Ensino fundamental (9º ano) - EE André Antônio Maggi
-- 2018-2020 Ensino médio - EE André Antônio Maggi
-- 12/10/2018 Primeira vigem à Aripuanã - MT (Brasil)
-- 15/07/2019-28/07/2019 Viagem à Rondônia (Brasil)
+- 2014-08/2016 Ensino fundamental (6º ao 7º ano) - <a href="https://maps.app.goo.gl/4c11kDNjiHAuiSeZ9" target="_blank">EMEIEF Mafalda Rodrigues</a>
+- 08/2016 Me mudo para <a href="https://maps.app.goo.gl/wyvCUsrzWZBABR739" target="_blank">Colniza - MT</a> (Brasil)
+- 08/2016-2017 Ensino fundamental (7º ao 8º ano) - <a href="https://maps.app.goo.gl/wQeghbh2WevkquWN8" target="_blank">EM Aparecido Neri Fonseca</a>
+- 2017-2018 Ensino fundamental (9º ano) - <a href="https://maps.app.goo.gl/YBswTrHHK4mChyH48" target="_blank">EE André Antônio Maggi</a>
+- 2018-2020 Ensino médio - <a href="https://maps.app.goo.gl/YBswTrHHK4mChyH48" target="_blank">EE André Antônio Maggi</a>
+- 12/10/2018 Primeira vigem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
+- 15/07/2019-28/07/2019 Viagem à <a href="https://maps.app.goo.gl/Vc9Y6JW8bNANxHeK6" target="_blank">Rondônia</a> (Brasil)
 - 27/09/2019-29/09/2019 Primeira viagem à Alta Floresta - MT (Brasil)
-- 27/09/2019-29/09/2019 Participo da 1ª Olimpíada Mato-Grossense de Lançamento de Foguetes
+- 27/09/2019-29/09/2019 Participo da <a href="https://www3.seduc.mt.gov.br/-/12973321-escola-de-cotriguacu-fica-entre-as-cinco-melhores-na-1-olimpiada-mato-grossense-de-lancamento-de-foguetes" target="_blank">1ª Olimpíada Mato-Grossense de Lançamento de Foguetes</a>
 - 29/09/2019 5º lugar na 1ª OMLF
 - ~2020 Medalha de bronze na 23ª Olimpíada Brasileira de Astronomia e Astronáutica
 - 2021 Primeiro emprego (informal)
 - 04/2021-02/2022 Graduação Ciência da Computação - UNEMAT
 - 03/01/2022-~ Técnico de Redes - Castilho@Net
 - 19/02/2022-~ Graduação Ciência da Computação - UNIP
-- 22/12/2022-03/01/2023 Viagem à Rondônia (Brasil)
-- 10/01/2024-15/01/2024 Primeira viagem à São Paulo e Goiás (Brasil)
-- 12/01/2024 Primeira visita ao Santuário Nacional de Nossa Sra. Aparecida
-- 13/01/2024 Primeira visita ao Santuário Frei Galvão
-- 13/01/2024 Primeira visita à Canção Nova
-- 15/01/2024 Primeira visita ao Santuário do Divino Pai Eterno
-- 23/03/2024-24/03/2024 - Segunda viagem à Aripuanã - MT (Brasil)
-- 27/10/2024 Terceira viagem à Aripuanã - MT (Brasil)
-- 23/06/2025-01/07/2025 Viagem à Rondônia (Brasil)
+- 22/12/2022-03/01/2023 Viagem à <a href="https://maps.app.goo.gl/Vc9Y6JW8bNANxHeK6" target="_blank">Rondônia</a> (Brasil)
+- 10/01/2024-15/01/2024 Primeira viagem à <a href="https://maps.app.goo.gl/EmaA6eq4Ee2uLpzC7" target="_blank">São Paulo</a> e <a href="https://maps.app.goo.gl/pRML5NMNJAAehdCa7" target="_blank">Goiás</a> (Brasil)
+- 12/01/2024 Primeira visita ao <a href="https://maps.app.goo.gl/subU6vj83hSkUK2b7" target="_blank">Santuário Nacional de Nossa Sra. Aparecida</a>
+- 13/01/2024 Primeira visita ao <a href="https://maps.app.goo.gl/PTLFsz6rccsPURKn6" target="_blank">Santuário Frei Galvão</a>
+- 13/01/2024 Primeira visita à <a href="https://maps.app.goo.gl/5yd4nhKesntEx2nj8" target="_blank">Canção Nova</a>
+- 15/01/2024 Primeira visita ao <a href="https://maps.app.goo.gl/6HNjMg8UuqTsL4RC7" target="_blank">Santuário do Divino Pai Eterno</a>
+- 23/03/2024-24/03/2024 - Segunda viagem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
+- 27/10/2024 Terceira viagem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
+- 23/06/2025-01/07/2025 Viagem à <a href="https://maps.app.goo.gl/Vc9Y6JW8bNANxHeK6" target="_blank">Rondônia</a> (Brasil)

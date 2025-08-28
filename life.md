@@ -27,6 +27,7 @@ Vida de @henriquesebastiao
 - 13/01/2024 Primeira visita ao <a href="https://maps.app.goo.gl/PTLFsz6rccsPURKn6" target="_blank">Santuário Frei Galvão</a>
 - 13/01/2024 Primeira visita à <a href="https://maps.app.goo.gl/5yd4nhKesntEx2nj8" target="_blank">Canção Nova</a>
 - 15/01/2024 Primeira visita ao <a href="https://maps.app.goo.gl/6HNjMg8UuqTsL4RC7" target="_blank">Santuário do Divino Pai Eterno</a>
-- 23/03/2024-24/03/2024 - Segunda viagem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
+- 23/03/2024-24/03/2024 Segunda viagem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
 - 27/10/2024 Terceira viagem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
 - 23/06/2025-01/07/2025 Viagem à <a href="https://maps.app.goo.gl/Vc9Y6JW8bNANxHeK6" target="_blank">Rondônia</a> (Brasil)
+- 23/08/2025 Me mudo para <a href="https://maps.app.goo.gl/yveZSCfamEiMevVW9">Aripuanã - MT</a> (Brasil)

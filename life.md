@@ -19,7 +19,7 @@ Vida de @henriquesebastiao
 - ~2020 Medalha de bronze na 23ª Olimpíada Brasileira de Astronomia e Astronáutica
 - 2021 Primeiro emprego (informal)
 - 04/2021-02/2022 Graduação Ciência da Computação - UNEMAT
-- 03/01/2022-~ Técnico de Redes - Castilho@Net
+- 03/01/2022-08/08/2025 Técnico de Redes - Castilho@Net
 - 19/02/2022-~ Graduação Ciência da Computação - UNIP
 - 22/12/2022-03/01/2023 Viagem à <a href="https://maps.app.goo.gl/Vc9Y6JW8bNANxHeK6" target="_blank">Rondônia</a> (Brasil)
 - 10/01/2024-15/01/2024 Primeira viagem à <a href="https://maps.app.goo.gl/EmaA6eq4Ee2uLpzC7" target="_blank">São Paulo</a> e <a href="https://maps.app.goo.gl/pRML5NMNJAAehdCa7" target="_blank">Goiás</a> (Brasil)
@@ -31,3 +31,4 @@ Vida de @henriquesebastiao
 - 27/10/2024 Terceira viagem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
 - 23/06/2025-01/07/2025 Viagem à <a href="https://maps.app.goo.gl/Vc9Y6JW8bNANxHeK6" target="_blank">Rondônia</a> (Brasil)
 - 23/08/2025 Me mudo para <a href="https://maps.app.goo.gl/yveZSCfamEiMevVW9">Aripuanã - MT</a> (Brasil)
+- 01/09/2025-~ Técnico de Redes - Norte Tel

@@ -20,7 +20,7 @@ Vida de @henriquesebastiao
 - 2021 Primeiro emprego (informal)
 - 04/2021-02/2022 Graduação Ciência da Computação - UNEMAT
 - 03/01/2022-08/08/2025 Técnico de Redes - Castilho@Net
-- 19/02/2022-~ Graduação Ciência da Computação - UNIP
+- 19/02/2022-20/01/2026 Graduação Ciência da Computação - UNIP
 - 22/12/2022-03/01/2023 Viagem à <a href="https://maps.app.goo.gl/Vc9Y6JW8bNANxHeK6" target="_blank">Rondônia</a> (Brasil)
 - 10/01/2024-15/01/2024 Primeira viagem à <a href="https://maps.app.goo.gl/EmaA6eq4Ee2uLpzC7" target="_blank">São Paulo</a> e <a href="https://maps.app.goo.gl/pRML5NMNJAAehdCa7" target="_blank">Goiás</a> (Brasil)
 - 12/01/2024 Primeira visita ao <a href="https://maps.app.goo.gl/subU6vj83hSkUK2b7" target="_blank">Santuário Nacional de Nossa Sra. Aparecida</a>
@@ -28,6 +28,7 @@ Vida de @henriquesebastiao
 - 13/01/2024 Primeira visita à <a href="https://maps.app.goo.gl/5yd4nhKesntEx2nj8" target="_blank">Canção Nova</a>
 - 15/01/2024 Primeira visita ao <a href="https://maps.app.goo.gl/6HNjMg8UuqTsL4RC7" target="_blank">Santuário do Divino Pai Eterno</a>
 - 23/03/2024-24/03/2024 Segunda viagem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
+- 07/04/2024 Comecei meu relacionamento com a Mila
 - 27/10/2024 Terceira viagem à <a href="https://maps.app.goo.gl/uqZoas2xptEZDuuYA" target="_blank">Aripuanã - MT</a> (Brasil)
 - 23/06/2025-01/07/2025 Viagem à <a href="https://maps.app.goo.gl/Vc9Y6JW8bNANxHeK6" target="_blank">Rondônia</a> (Brasil)
 - 23/08/2025 Me mudo para <a href="https://maps.app.goo.gl/yveZSCfamEiMevVW9">Aripuanã - MT</a> (Brasil)
